@@ -10,3 +10,5 @@ Here's the link to my other social :3 Thank you for reading and supporting ^_^
 <a href="https://macncheese0990.atabook.org/">MacN_Cheese0990's atabook</a>
 
 <a href="https://macncheese0990.straw.page">MacN_Cheese0990's strawpage</a>
+
+<a href="https://discord.com/users/https://discord.com/users/1178224192907395118">MacN_Cheese0990's Discord</a>
