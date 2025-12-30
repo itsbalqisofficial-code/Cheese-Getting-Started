@@ -12,4 +12,4 @@ Anyway, it's time to introduce myself better :]. By now, you should already know
 Honestly, I am a multifandom myself. Though my genre is specifically into horror, dark psychology, something disturbing (be it mentally or physically), and gore. Basically, I know— SCP, Creepypasta, Doctor Nowhere's creature, Trevor Henderson's creature, Madness Combat, Mandela Catalogue, Dead by Daylight, any slasher movies, Slenderverse, FNAF,  etc.
 
 Here's the link to my other social :3
-<a href="https://macncheese0990.atabook.org/">link name</a>
+<a href="https://macncheese0990.atabook.org/">MacN_Cheese0990's atabook</a>
