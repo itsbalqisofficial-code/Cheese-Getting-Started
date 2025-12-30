@@ -7,3 +7,4 @@ SCP, Creepypasta, Doctor Nowhere's creature, Trevor Henderson's creature, Madnes
 
 Here's the link to my other social :3 Thank you for reading and supporting ^_^
 <a href="https://macncheese0990.atabook.org/">MacN_Cheese0990's atabook</a>
+<a href="https://macncheese0990.straw.page">MacN_Cheese0990's strawpage</a>
